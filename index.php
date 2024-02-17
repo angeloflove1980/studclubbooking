@@ -3,6 +3,7 @@
 <html amp="" lang="id">
   <head>
     <meta charset="utf-8">
+    <meta name="google-site-verification" content="58S1zishsR15TJCkjgxmaQDCilFC-u2YRntGuQW12OM" />
     <meta name="viewport" content="width=device-width">
     <title>Dewa505 ⚡ Daftar Situs Judi Para Slotters Indonesia #1</title>
     <meta name="title" content="Dewa505 ⚡ Daftar Situs Judi Para Slotters Indonesia #1">
